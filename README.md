@@ -6,7 +6,7 @@
 
  # Tentang saya
  *Hobi: main game & mendengarkan lagu di spotify* <br> 
- *Almuni SMK NEGERI 2 SURABAYA SMEKDA LIAR!!* 
+ *Almuni SMK NEGERI 2 SURABAYA SMEKDA LIAR!!* <br>
  *Keahlian: suka meretas situs web NASA* <br> 
 
  # Skill Yang Dikuasai 
